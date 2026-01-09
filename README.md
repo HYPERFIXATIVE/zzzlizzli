@@ -15,10 +15,10 @@ zzlizzli's colors and items they carry can vary depending on their regional area
 
 
 # "can i make my own zzlizzli?" 
-yes!, remember the zzlizzli's have no color limits it just depends on where your zzlizzli are from!
-think while making a zzlizzli where they reside and then base the colors on the area around them for example the green zzlizzli's are forest dwellers! they live in the trees.
+yes!, remember the zzlizzli's have no color limits it just depends on where your zzlizzli is from
+think while making a zzlizzli where they reside and then base the colors on the area around them for example the green zzlizzli's are forest dwellers. they live in the trees.
 ![](https://files.catbox.moe/u5by6y.png)
-
+**forest dweller zzlizzli**
 
 # "can i draw a zzlizzli?"
 yes if you want to draw one and send it to me contact me on discord my user is gab.v1el 
