@@ -27,4 +27,4 @@ feel free to make zzlizzli's and post art of your zzlizzli's all zzlizzli's are 
 
 
 ![](https://files.catbox.moe/e8ux6o.png)
-friends cosplaying as zzlizzli's<3
+friends cosplaying as zzlizzli's by the mother zzlizzli<3
