@@ -12,3 +12,9 @@ they have the reproductive organs needed to reproduce normally but most if not a
 zzlizzli's colors and items they carry can vary depending on their regional area.
 ![](https://files.catbox.moe/xim5kr.png)
 ![](https://files.catbox.moe/oi0e1p.png)
+
+
+# "can i make my own zzlizzli?" 
+yes!, remember the zzlizzli's have no color limits it just depends on where your zzlizzli are from!
+think while making a zzlizzli where they reside and then base the colors on the area around them for example the green zzlizzli's are forest dwellers! they live in the trees.
+![](https://files.catbox.moe/5a41wh.png)
